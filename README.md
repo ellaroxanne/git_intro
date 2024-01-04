@@ -1,3 +1,3 @@
 Ella Young
-ellaroxanne@gmail.com
 12
+Ghost
